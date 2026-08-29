@@ -5,7 +5,7 @@ im a artist/animator who love fandoms, animals(some of them), my ocs, music and 
 
 go by any pronouns
 
-more info at my pronouns page!!
+more info at my carrd!!
 
 <!--
 **vulpeshazard/vulpeshazard** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
