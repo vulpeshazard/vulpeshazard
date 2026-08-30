@@ -1,7 +1,7 @@
 ## hihihihi
 hallo!!! im zapluro or just zap, vulpeshazard or vulpes is okay!!
 
-im a artist/animator who love fandoms, animals(some of them), my ocs, music and more!!
+I'm a artist+animator go check yt pls
 
 go by any pronouns
 
