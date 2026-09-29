@@ -1,5 +1,5 @@
 ## hihihihi
-hallo!!! im zapluro or just zap, vulpeshazard or vulpes is okay!!
+hallo!!! im zapluro/zap!! my other name is vulpes an/or rory ok idk if y'all prefer idk
 
 I'm a artist+animator go check yt pls
 
